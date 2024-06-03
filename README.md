@@ -1,5 +1,5 @@
 ### About Me  
-### <div align="center">I'm Rebecca Zipper, a current student at Muhlenberg College</div>  
+### <div align="center">Rebecca Zipper</div>  
   
 
 <br/>  
